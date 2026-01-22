@@ -20,6 +20,7 @@
     - [7.5 UFO演示](./content/proof/UfoDemonstrate.md)
     - [7.6 比利被暗杀图片](./content/img/Assassinate.md)
     - [7.7 UFO痕迹](./content/proof/UfoMark.md)
+    - [7.8 外星人痕迹](./content/proof/PortraitMark.md)
 
 ---
 
