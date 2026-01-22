@@ -6,7 +6,7 @@
 ## 目录
 - [一、书籍]
     - [1.1 电子书的危害](./content/book/TheDownsidesOfEBooks.md)
-- [二、中国](#二核心特性)
+- [二、中国]
     - [2.1 黄种人三次移民地球的历史](./content/china/MongoloidsHistory.md)
 - [三、宇宙]
 - [四、预言]
