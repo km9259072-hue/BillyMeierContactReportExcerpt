@@ -14,6 +14,7 @@
 ### 原文
 
 - [比利迈尔小册子](#原文比利迈尔小册子)
+- [第236次接触](#title-2)
 
 ---
 
@@ -82,3 +83,22 @@ Hence, the KUDRA emigrants finally found a new home on planet Nissan, which they
 Well then, 25,978 years ago, going back from the year 1990, a major group of searching, determined and adventurous people from the Kinten and Niiper races united with each other, to travel in an expedition into the vast universal space. Their first goal was identical to the previously established ancestral goal set down many millions of years ago — to reach the SOL-system with its planets Malona and Earth: The first planet the forebearers came upon was a mass of fragments only; a ring of asteroids orbiting the sun, while planet Earth was already in full bloom. Encircling the Earth, as a moon, was the very fragment from a Lasan-group planet, which had been previously ripped away more than 20 million years past, by the destructive force of the dark planet, the "Destroyer." Thereafter, it had been pushed through the vastness of interstellar space, until its path decelerated in the SOL-system because of planet Uranus' influence, only to glide then in moderate speed toward Earth, where it was entrapped by Earth's influence and has circled the blue planet, as a moon, ever since. The Kinten and Niiper space travellers, totalling nearly 680,000 human beings in number, did not land with their spaceships on Earth but, instead, had themselves taken to Earth's surface by robot control devices. Only a few hundred individuals remained on board the ships that floated in open space. Those individuals who had landed on Earth, felt that the planet was inhabitable and settled in those regions which are now known as the Far Eastern (Chinese) countries. Thereafter they separated according to their race and migrated across the land and onto islands. They decided to remain permanently on this planet, and because of this they invited the others who had remained on the spaceships, to settle on this planet as well. In the meantime, however, these spacebound individuals had changed their minds and decided to search for their true, ancient motherland on the other side of the Milky Way, the Nisan system and planet Kudra. Subsequently they guided their spaceships away from Earth and began the lengthy voyage to the other side of the sun. With the exception of an unmanned robot spacecraft, not one ship or single human being reached this goal. Somewhere en route in the Milky Way, the ships and their passengers became lost and were never heard from again, and their whereabouts have remained an unsolved mystery until now. The elements of this event were only discovered by the Pleiadians within the past few years, when they found data in still-intact archive-memory centres on planet Kudra, which had become colonized by a normal population long before. The data, in part, came from the robot ship that had been sent as forerunner from Earth to Kudra.
 
 According to this discovery, therefore, the yellow race came to Earth 25,978 years ago as the youngest of Earth a inhabitants, where they procreated and formed new peoples who still exist even today. As has been the case with all other races and travellers from the depths of the universe, they have lost all knowledge of their heritage, just as the remaining nearly 219.8 million people have done who are of extraterrestrial origin. As a rule, they, too, no longer have any knowledge whatsoever of their actual origin, for they live as human beings among other human beings on Earth, and are part of an evolution, as well as an adaptation to terrestrial life.
+
+---
+
+### 第236次接触
+<a id="title-1"></a>
+Billy:
+Davon wollte ich eigentlich noch reden und dir auch noch Fragen stellen. Du hast nun aber darüber ausführlich gesprochen, so ich eigentlich nichts mehr dazu zu sagen oder zu fragen habe. – – Doch noch etwas: Kannst du mir sagen, welches das älteste und welches das jüngste Volk ist auf der Erde, wenn man von den Erdlingen selbst absieht, die ja auf der Erde kreiert wurden!
+Ptaah:
+191. Die ersten drei Völker, die zuerst zur Erde kamen, waren gleichzeitig die Roten, die Braunen und die Weissen.
+192. Von diesen aber auch nur die Normalwüchsigen.
+193. Dies war vor rund 22 Millionen Jahren, als der Zerstörer in den Lyranischen Heimatsystemen sein Zerstörungswerk getan hatte.
+194. Erst sehr viel später kamen dann noch Andersfarbige sowie Riesen, Giganten, Titanen und Zwerg-wüchsige sowie Naturwesen zur Erde, unter anderem auch Zwerge, wovon sich sehr viel später, nämlich erst vor etwa 21,000 Jahren, späte Nachkommen an den Gestaden des SANURA-SEES ansiedelten und dort lebten, bis im Westen des Sees der Damm riss und alles wegschwemmte.
+195. Die Gestade, an denen die etwa 40 cm grossen Zwergwesen wohnten, befanden sich damals genau da, wo heute das Center steht.
+196. Die Andersfarbigen, die nachträglich zur Erde kamen, waren ausschliesslich sehr stark dunkelhäutig und setzten sich auf jenem Land fest, das heute als Kontinent Afrika gilt, von wo aus sie sich dann weiterverbreiteten, einige nach Australien und Neuseeland und andere an verschiedene andere Orte.
+197. Die gelben Völker der Chinesen und Japaner, die sind auf der Erde die jüngsten Bewohner, denn ihr Erscheinen auf diesem Planeten war erst vor etwas mehr als einem kosmischen Zeitalter, und zwar ziemlich genau vor 25,978 Jahren.
+198. Sie kamen her vom Planeten NISSAN in der Nachbarschaft von LASAN in den Lyra-Systemen.
+199. Zuvor aber, das wurde erst die letzten Jahre ergründet, lebten sie jenseits der Sonne auf einem Planeten mit dem Namen KUDRA, in einem Sonnensystem, das als NISAN-System bezeichnet wurde.
+200. Sie kamen vor 2,4 Millionen Jahren in die Lyrasysteme und nach Nisan, weil sie infolge Überbevölkerung emigrieren mussten.
+201. Und den Weg zu unseren Urheimatplaneten fanden sie durch eine altlyranische Grossexpeditionsflotte, die jenseits der Sonne expeditionierte und im NISAN-System auf den Planeten Kudra und dort wiederum auf die gelben Völker stiess.
