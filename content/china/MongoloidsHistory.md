@@ -113,7 +113,7 @@ Ptaah：
 
 202.这符合事实，是的。
 
-Soweit also das. Dazu möchte ich dich bitten, dass du das Wichtigste ein andermal erklärst, damit ich es dann abrufen und einmal schriftlich festhalten kann.
+就说这么多吧。我希望您下次能再解释一下最重要的几点，这样我才能记住并记下来。
 
 Ptaah：
 
